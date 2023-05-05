@@ -1,0 +1,1 @@
+bazı kodlar ekledim.
